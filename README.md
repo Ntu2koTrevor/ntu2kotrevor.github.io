@@ -1,1 +1,0 @@
-# ntu2kotrevor.github.io
